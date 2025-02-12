@@ -2,7 +2,7 @@
 
 1) sampa não tem ingerência na produção petrolifera na foz do amazonas devido a lobby standard oil definido desde antes de monteiro lobato tentar entrar no setor de energia. vide  seu classico  "o manifesto do petroleo".
 
-sampa eh deficitario em energia. historicamente especialista em arrebentar os ecossistemas ao norte sul e etc sempre para supri-lo energéticamente. 
+sampa eh deficitario em energia. historicamente especialista em arrebentar os ecossistemas ao norte,sul, lrstr e oeste, para supri-lo energéticamente. 
 
 1.1) compensação e reparação histórica 
 
